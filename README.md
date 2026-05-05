@@ -4,4 +4,4 @@ I am a aspiring creative dev and engineer who is currently working on a cat food
 Currently, I am learning C++ and I am looking to collaborate on more indie game projects !
 
 
-Contact:  
+Contact: ivoryskittiesandcupcakes@gmail.com
